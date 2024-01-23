@@ -1,1 +1,1 @@
-Arramton Project !... ONlY for TESTING.
+Arramton Project !... ONLY for TESTING.
